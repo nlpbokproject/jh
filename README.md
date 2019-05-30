@@ -1,1 +1,1 @@
-# team 3 project complete - 190529 (한 달간 수행)
+# team 3 project 1 month complete - 190529
